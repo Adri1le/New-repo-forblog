@@ -4,4 +4,4 @@
 
 Thank you very much ! :)
 
-![CV of Adrien in French (sorry)](/CV_Adrien_Levivier_ICAI.pdf)
+![CV of Adrien in French (sorry)](/sans titre.png)
